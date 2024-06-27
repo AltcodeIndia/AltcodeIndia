@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **jatinsainisep@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1lxR84N8OIExjlvaSFtD0Mzx4S9viTvmr/view?usp=sharing](https://drive.google.com/file/d/1lxR84N8OIExjlvaSFtD0Mzx4S9viTvmr/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1DLiUdBGejOwkWCJu58KqQE9ax6bVFGJ7/view?usp=sharing](https://drive.google.com/file/d/1DLiUdBGejOwkWCJu58KqQE9ax6bVFGJ7/view?usp=sharing)
 
 - ⚡ Fun fact **I love to explore new technologies, but I also enjoy outdoor activities like hiking and cycling to stay balanced and refreshed.**
 
